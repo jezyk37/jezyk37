@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jezyk37
 - 👀 I’m interested in yuumi
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning how yuumi is so cute
 - 💞️ I’m looking to collaborate on yuumi
 - 📫 How to reach me yuumi
 - 😄 Pronouns: yu/umi
