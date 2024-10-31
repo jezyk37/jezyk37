@@ -5,6 +5,7 @@
 - 📫 How to reach me yuumi
 - 😄 Pronouns: yu/umi
 - ⚡ Fun fact: yuumi is MY cat
+- - 👀 I want yuumi for my own 
 
 <!---
 jezyk37/jezyk37 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
